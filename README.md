@@ -1,5 +1,5 @@
 # streamhentai
-<h1>treaming Hentai Subslite INDO</h1>
+<h1>streaming Hentai Subslite INDO</h1>
 <blockquote>~No Ads</blockquote>
 <blockquote>~No Iklan</blockquote>
 <blockquote>~Jangan Lupa Share Ya</blockquote>
