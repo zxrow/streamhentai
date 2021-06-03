@@ -6,7 +6,9 @@
 <blockquote>~New Update</blockquote>
 <blockquote>~Change Tema Apk</blockquote>
 <blockquote>~New Logo Loading</blockquote>
-<blockquote>~Next Update Login</blockquote>
+<blockquote>~New Login No Email , No Pw</blockquote>
+<blockquote>~New Vitur streamwbZxy</blockquote>
+<blockquote>~New Logo Login Apk</blockquote>
 <blockquote>~Jangan Lupa Share Ya</blockquote>
 <blockquote>~Support Terus Aplication Nya</blockquote>
 
